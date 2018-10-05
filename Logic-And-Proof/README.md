@@ -41,6 +41,9 @@ ise bağlacını
 ![](img/note18.png)
 ![](img/note19.png)
 ![](img/note20.png)
+![](img/note21.png)
+![](img/note22.png)
+![](img/note23.png)
 
 
 
