@@ -37,6 +37,10 @@ ise bağlacını
 ![](img/note14.png)
 ![](img/note15.png)
 ![](img/note16.png)
+![](img/note17.png)
+![](img/note18.png)
+![](img/note19.png)
+![](img/note20.png)
 
 
 
