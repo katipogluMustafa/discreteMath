@@ -82,3 +82,44 @@
 
 ![Slide Note From Banu Diri](img/41.png)
 
+![Slide Note From Banu Diri](img/42.png)
+
+![Slide Note From Banu Diri](img/43.png)
+
+![Slide Note From Banu Diri](img/44.png)
+
+![Slide Note From Banu Diri](img/45.png)
+
+![Slide Note From Banu Diri](img/46.png)
+
+![Slide Note From Banu Diri](img/47.png)
+
+![Slide Note From Banu Diri](img/48.png)
+
+![Slide Note From Banu Diri](img/49.png)
+
+![Slide Note From Banu Diri](img/50.png)
+
+![Slide Note From Banu Diri](img/51.png)
+
+![Slide Note From Banu Diri](img/52.png)
+
+![Slide Note From Banu Diri](img/53.png)
+
+![Slide Note From Banu Diri](img/54.png)
+
+![Slide Note From Banu Diri](img/55.png)
+
+![Slide Note From Banu Diri](img/56.png)
+
+![Slide Note From Banu Diri](img/57.png)
+
+![Slide Note From Banu Diri](img/58.png)
+
+![Slide Note From Banu Diri](img/59.png)
+
+![Slide Note From Banu Diri](img/60.png)
+
+![Slide Note From Banu Diri](img/61.png)
+
+![Slide Note From Banu Diri](img/62.png)
