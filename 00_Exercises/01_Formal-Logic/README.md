@@ -1,4 +1,4 @@
-# Formal Logic
+# Formal Logic ~ Exercises
 
 ![](img/1.png)
 

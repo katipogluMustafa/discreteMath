@@ -1,4 +1,4 @@
-# Formal Logic Answers
+# Formal Logic ~ Answers
 
 Here is the answers to selected questions.
 
