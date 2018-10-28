@@ -41,8 +41,6 @@ Exercise 31 of Section 1.1
 
 ---
 
-Example 1.8
-
 ![](img/13.1.png)
 
 ![](img/13.2.png)
